@@ -1,0 +1,1 @@
+# ZerveWorldCup2026
